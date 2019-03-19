@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## RADIOS PERU STEREO : PRIVACY POLICY 
 
  lubeck abraham huaman ponce built the Radios Peru Stereo app as an Ad Supported app. This SERVICE is provided by lubeck abraham huaman ponce at no cost and is intended for use as is.
 
